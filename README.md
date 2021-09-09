@@ -4,7 +4,7 @@
 
 ### Jorge Leonardo López Agredo. Código: 2218061
 
-### Eliana Bonalde MArcano. Código: 2218065
+### Eliana Bonalde Marcano. Código: 2218065
 
 ### Prof.: Juan Carlos Bastos Pineda
 ___
